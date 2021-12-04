@@ -1,0 +1,2 @@
+- 👋 Oi eu sou @Saory
+- 👀 Estou interessada em Arte e Censura
